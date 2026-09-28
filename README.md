@@ -12,7 +12,7 @@ https://www.shopcom.tn/product/archicad-29-0-2/
 Product Price : 5,620 $
 
 Payment :
-https://www.shopcom.tn/payment
+https://www.shopcom.tn/payments
 
 Website :
 https://www.shopcom.tn
